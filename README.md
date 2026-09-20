@@ -1,5 +1,5 @@
 # 💫 About Me:
-👧🏽 - Call me Issa<br>🌸 - Female , 2003<br>✨ - Currently studying BS Computer Science (4th Year)<br>💌 - Reach me at: jenissamaridimayacyac@gmail.com
+👧🏽 - Call me Issa<br>🌸 - Female , 2003<br>👩🏻‍🎓 - BS Computer Science Specialized in Intelligent Systems<br>💻- Omnibus Platforms IT Specialist <br>💌 - Reach me at: jenissamaridimayacyac@gmail.com<br>
 
 
 ## 🌐 Socials:
